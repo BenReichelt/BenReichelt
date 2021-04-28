@@ -9,4 +9,4 @@ I am a graduating computer science student from Boston University who is looking
 - 💬 Ask me about my favorite books, movies, or games!
 - 📫 How to reach me: reichelt@bu.edu
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Master of Dance Dance Revolution and Guitar Hero. And I speak Portuguese.
+- ⚡ Fun fact: Master of Dance Dance Revolution and Guitar Hero. And I'm learning to speak fluent Portuguese.
